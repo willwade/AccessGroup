@@ -11,14 +11,6 @@ Our Objectives include:
 As well as planning and organising a two day national training event, we meet twice a year at a convienient location around the country and converse online in an email group.  You can read the full [terms of reference here](terms-of-reference.md).
 
 
-Upcoming Events
---------
-
-  * Meetings
-    * Access to Communication and Technology (ACT), West Midlands Rehabilitation Centre 91, Oak Tree Lane Selly Oak Birmingham B29 6JA. 
-    * Note: 20th January 2017 [National Space Centre](http://spacecentre.co.uk/visit/#mapsSection). Time: 10-4. Please let us know if you can make it.
-
-
 Mailing List
 ------------
 
